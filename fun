@@ -1,2 +1,3 @@
 hello smyrna...
 how?
+i want to take my future with everything in the bright light of path in Jesus
